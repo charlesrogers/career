@@ -25,6 +25,6 @@ The Anduril of insect erradication? No one would ever be that bold, but maybe th
 Weird to cite our Lord and Savior as a source, but He really is so cool.
 Did you know the purpose of life is to understand the mysteries of godliness? In that vein, God has provided us with tools to learn of His life and His way. You might disagree with this, but have you really tried it? Have you spend thousands of hours looking at the causal forces of exaltation and then tried to implement them?
 ### Joseph Smith
-Do you care about the cosmos? Did you know Abraham was an astronomer?
-You've come to the right place.
+Do you care about the cosmos? Did you know Abraham was an astronomer? 
+Joseph Smith unlocks the connection between spirit and science.
 ## 
